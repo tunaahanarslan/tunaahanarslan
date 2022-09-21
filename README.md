@@ -1,0 +1,1 @@
+- 👋My department is Industrial Engineering in Eskişehir Osmangazi Universitiy. I am second class student. I am very interested on software. I am devoloping myself day-to-day in softwares languages.My skills; entry level-sql,html and css. I would like to learn phyton,java,javascript etc.languages on start-up company.
